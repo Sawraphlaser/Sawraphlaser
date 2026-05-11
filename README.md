@@ -7,9 +7,9 @@
 
 ── ⋆⋅☆⋅⋆ ──
 
-༄.°☁︎ → I'm very awkward with conversations, So sorry in advance if any interaction may came off mean,, I block freely / whenever I'm uncomfortable ,, ᯓ ‧₊˚♪ 𝄞₊˚⊹ ── .✦
+༄.°☁︎ → I'm very awkward with conversations, So sorry in advance if any interaction may came off mean,, I block freely / whenever I'm uncomfortable ,, ᯓ  ‧₊˚♪ 𝄞₊˚⊹  ── .✦
 
 
-༄.°☁︎ → You can say hi to me if you want ! just sometimes check my ponies name before interact ! but everyone are welcome to say hi  ꉂ(˵˃ ᗜ ˂˵) ,, ᯓ .ᐟ.ᐟ ── .✦
+༄.°☁︎ → You can say hi to me if you want ! just sometimes check my ponies name before interact ! but everyone are welcome to say hi  ꉂ(˵˃ ᗜ ˂˵) , , ᯓ  .ᐟ .ᐟ  ── .✦
 
 ── ⋆⋅☆⋅⋆ ──
