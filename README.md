@@ -5,7 +5,7 @@
 
 
 
-── ⋆⋅☆⋅⋆ ──
+⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹
 
 ༄.°☁︎ → I'm very awkward with conversations, So sorry in advance if any interaction may came off mean,, I block freely / whenever I'm uncomfortable , , ᯓ   ‧₊˚♪ 𝄞₊˚⊹  ── .✦
 
@@ -19,6 +19,6 @@
 
 ## . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
 
-## I love you too <𝟑 .ᐟ 𐔌՞. .՞𐦯
+## I love you too <𝟑 .ᐟ 𐔌՞. .՞𐦯 ᶻ 𝗓 𐰁 .ᐟ
 
 ## ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
