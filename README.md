@@ -13,3 +13,7 @@
 ༄.°☁︎ → You can say hi to me if you want ! just sometimes check my ponies name before interact ! but everyone are welcome to say hi  ꉂ(˵˃ ᗜ ˂˵) , , ᯓ   .ᐟ .ᐟ  ── .✦
 
 ── ⋆⋅☆⋅⋆ ──
+
+## I love you too <𝟑 .ᐟ 𐔌՞. .՞𐦯
+
+## ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
