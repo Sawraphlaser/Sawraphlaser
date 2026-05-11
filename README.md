@@ -12,6 +12,8 @@
 
 ༄.°☁︎ → You can say hi to me if you want ! just sometimes check my ponies name before interact ! but everyone are welcome to say hi  ꉂ(˵˃ ᗜ ˂˵) , , ᯓ   .ᐟ .ᐟ  ── .✦
 
+༄.°☁︎ → Currently working on strawpage :-) ! , , ᯓ   .☘︎ ݁˖  ── .✦
+
 ── ⋆⋅☆⋅⋆ ──
 
 
